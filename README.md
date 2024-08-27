@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @Re1sss
+- im 17
+- 👀 I’m interested in card games, coding random util classes for hours no break then forgetting they existed rince repeat
+-  imma planning to make a new visual language that compiles down to regular code of some format in order to make prototyping easier
+-  i migth be a nerd !!
+- 🌱 I’m always learning new stuff to improve myself
+- I lack basic motor functions and reflexes
+- Im kinda lost lately i have no idea what i want to or am going to do
+- my mind is slowly turning into a mess of information and emotions (emotions which are meaningless like the hormons flow in my blood but i dont feel anything special or meaningful about it)
+- about lessons im good at maths and only maths (im mega screwed, im basically three years behind at everything else)
